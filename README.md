@@ -1,0 +1,1 @@
+# Mathematical-model-for-fuzzy-logic-in-washing-machine-
